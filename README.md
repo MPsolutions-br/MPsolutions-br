@@ -47,7 +47,7 @@ Nossa missão é fornecer soluções educacionais e serviços de desenvolvimento
 Se você está interessado em nossos serviços ou quer saber mais sobre o que podemos fazer por você, entre em contato conosco:
 
 - **Email:** mpsolution.company@gmail.com
-- **Telefone:** (31) 98477-9327
+- **Telefone:** (31) 98477-9327 ou +55 31 7229-0283
 - **Endereço:** BR - MG - Belo Horizonte
 
 ---
